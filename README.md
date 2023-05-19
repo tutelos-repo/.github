@@ -1,2 +1,0 @@
-# TutelOS
-coming soon 😊😊
